@@ -18,7 +18,7 @@ Dirk is a husky with ice powers, who recently made a bet with Robuster. Not just
 
 Rivals: 
 - Whirl (Best friends)
-- Star (Older brother)
+- Star (Younger sister)
 - Inazuma (First and reliable friend)
 
 Whirl the Ram
